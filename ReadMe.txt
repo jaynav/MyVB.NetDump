@@ -1,0 +1,1 @@
+These were the projects i did in school

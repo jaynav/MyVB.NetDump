@@ -1,0 +1,1 @@
+With My Origial windows mobile 7 app, i got an F because apparently the professor said that since he did not know win mobile 7, it did not count. so i downgraded it to windows mobile 6 and he replaced my F to an A... somehow not following instructions
